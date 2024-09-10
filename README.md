@@ -17,7 +17,7 @@
 
 ---
 
-## 💞️ **Let’s Collaborate**
+## 💼 **Let’s Collaborate**
 I’m actively seeking opportunities in **data analysis** and **business analysis** where I can apply my skills to solve real-world problems.
 
 📫 Reach me at: **jainminni66@gmail.com**
